@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Amninder302
+- 👀 I’m interested in learning more OOP, and making a small game at the start of next year
+- 📫 How to reach me amninderkaur007@gmail.com
+- 😄 Pronouns: she/her
